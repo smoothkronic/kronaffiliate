@@ -1,0 +1,2 @@
+# kronaffiliate
+Affiliate marketing
